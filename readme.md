@@ -1,4 +1,3 @@
-live Link: https://chayon-chandra.github.io/emergency-hotline/
 
 => Q 01. Answer to the question no 01 =>
 
